@@ -9,3 +9,4 @@ D'un coup le volume de la télé monte, c'est les infos, et là ... BREAKING NEW
 _Présentatrice qui parle:_ "Les chats du monde entier ont décidé de reprendre contrôle du monde,"  
 "- Nous avons avec nous un de leurs représentant. Je lui laisse la parole."  
 _Capitaine Meow:_ "- Meow MEOOOW miaouuuuu" _qui se traduit par: "Nous avons des **revendications**..."_
+Message de la part de Geoffrey
